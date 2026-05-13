@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots instant Scripts is the best get strong for brainrots Script, featuring god mode and auto-collect. Safe and powerful for all
 
 
 
